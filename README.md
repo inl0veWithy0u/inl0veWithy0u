@@ -9,7 +9,8 @@ Hello! I'm very happy that you're reading this post!!<br>
   <p align="center">
 You can call me Minz, but once we're a little closer,<br>
 call me Min if you want to!!<br>
-    To be honest, I don't really mind what you call me, you can even make up a nickname for me if you'd like! ( ˶ˆᗜˆ˵ )<br><br>
+    To be honest, I don't really mind what you call me, you can even make up a nickname for me if you'd like!
+    <br><br>
     However, if a nickname makes me uncomfortable, please don't use it.<br>
     It might end up bothering me a little.. (^▽^)
   </p>
