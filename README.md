@@ -35,6 +35,6 @@ Most of the time, when I'm free, I spend it enjoying my hobbies. My daily life i
 (╥﹏╥)｡｡｡
 <br><br>
 
-+ I spent my time watching movies, drawing, shifting (I'm still learning!!), and other things that catch my interest. One of my dreams is to improve my art skills and open commissions in the future so I can earn money to buy the things I love hehehXDD
++ I spent my time watching movies, drawing, shifting (I'm still learning!!), and other things that catch my interest. One of my dreams is to improve my art skills and open commissions in the future so I can earn money to buy the things I love hehehXDD.
 I enjoy peaceful environments and quiet places. I love spending time alone in those kinds of spaces, relaxing and doing my own thing (or maybe taking a very long nap!!) (｡>ω<｡) ✿
 </p>
