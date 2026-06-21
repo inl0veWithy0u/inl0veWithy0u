@@ -78,6 +78,12 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
 <br><br>
 
 <p align="center">
+────── ⋆⋅૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა⋅⋆ ──────
+</p>
+
+<br><br>
+
+<p align="center">
 <img
 width="736"
 alt="image"
