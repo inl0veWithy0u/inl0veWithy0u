@@ -7,7 +7,7 @@ Hello! I'm very happy that you're reading this post!!<br>
 <br>
 
 <p align="center">
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/3810f422-2eef-4a66-b4ed-0f701d2419ef" />
+<img width="736"height="736" alt="image" src="https://github.com/user-attachments/assets/3810f422-2eef-4a66-b4ed-0f701d2419ef" />
 </p>
 
 <br>
@@ -38,3 +38,12 @@ Most of the time, when I'm free, I spend it enjoying my hobbies. My daily life i
 + I spent my time watching movies, drawing, shifting (I'm still learning!!), and other things that catch my interest. One of my dreams is to improve my art skills and open commissions in the future so I can earn money to buy the things I love hehehXDD.
 I enjoy peaceful environments and quiet places. I love spending time alone in those kinds of spaces, relaxing and doing my own thing (or maybe taking a very long nap!!) (｡>ω<｡) ✿
 </p>
+
+<br>
+
+<p align="center">
+  <img 
+    width="736"
+    alt="image"
+    src="<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/969bcc91-f167-4db3-9ff9-4eb3b9cfa16e" />
+    </p>
