@@ -23,4 +23,14 @@ Hello! I'm very happy that you're reading this post!!<br>
 <br><br>
 
 + I'm not someone who is constantly active or able to reply to every message right away, so feel free to whisper me first so I can know you're there and that you've interacted with me!! I'll do my best to reply as soon as I can!! (๑•̀ㅂ•́)و✧
-</p>
+<br><br>
+
++I have to admit that I'm not a very outgoing person and I'm not always easy to approach or talk to (｡•́︿•̀｡), especially when it comes to strangers or people who don't speak Vietnamese.
+<br><br>
+
+It's not because I don't want to talk to you. Honestly, once I get comfortable with someone (even just a little), I can be very talkative!! For people who don't share the same language as me, communication can be a bit more difficult...
+<br><br>
+
+I'm not very confident in my English, even though people around me often tell me it's quite impressive!! The truth is that I'm really bad at grammar, and it gives me a headache sometimes!! (╥﹏╥)
+<br><br>
+
