@@ -50,12 +50,6 @@ src="https://github.com/user-attachments/assets/07fb5de1-8b0b-42d4-ac0a-eaf50c83
 
 <br>
 
-<div align="center">
-
-⡤⠒⢤⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⡤⠒⢤
-⢣⡀⠀⠉⠲⢤⣀⡀⠀⠀⠀⠀⠀⠀⢀⣀⡤⠖⠉⠀⢀⡜
-⢸⡉⠒⠄⠀⠀⠀⢉⡙⢢⠀⠀⡔⢋⡩⡀⠀⠀⠠⠒⢉⡇
-⠀⠉⢖⠒⠀⠀⠀⣇⠀⣸⠀⠀⣇⠈⣸⠀⠀⠀⠒⡲⠉⠀
-⠀⠀⠀⠉⠙⠫⠤⠚⠉⠀⠀⠀⠀⠉⠓⠤⠝⠋⠉⠀⠀⠀
-
-</div>
+<p align="center">
+૮꒰ ˶• ༝ •˶꒱ა
+</p>
