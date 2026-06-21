@@ -2,8 +2,14 @@
 Hello! I'm very happy that you're reading this post!!<br>
   I'd like to share a little information about myself.<br>
   It will be short, so it won't take much of your time!! ( ˶ˆᗜˆ˵ )*.★ 
-</p>
+ <br><br>
 
+ You can call me Minz, but once we're a little closer, call me Min if you want to!!<br>
+ To be honest, I don't really mind what you call me—you can even make up a nickname for me if you'd like! ( ˶ˆᗜˆ˵ )<br>
+ However, if a nickname makes me uncomfortable, please don't use it.<br>
+ It might end up bothering me a little.. (^▽^)
+ </p>
+ 
 <br>
 
 <p align="center">
