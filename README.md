@@ -39,11 +39,11 @@ Most of the time, when I'm free, I spend it enjoying my hobbies. My daily life i
 I enjoy peaceful environments and quiet places. I love spending time alone in those kinds of spaces, relaxing and doing my own thing (or maybe taking a very long nap!!) (｡>ω<｡) ✿
 </p>
 
-<br>
+<br><br>
 
 <p align="center">
-  <img 
-    width="736"
-    alt="image"
-    src="<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/969bcc91-f167-4db3-9ff9-4eb3b9cfa16e" />
-    </p>
+<img
+width="736"
+alt="image"
+src="https://github.com/user-attachments/assets/07fb5de1-8b0b-42d4-ac0a-eaf50c83fc85" />
+</p>
