@@ -30,5 +30,6 @@ It's not because I don't want to talk to you. Honestly, once I get comfortable w
 <br><br>
 
 + I'm not very confident in my English, even though people around me often tell me it's quite impressive!! The truth is that I'm really bad at grammar, and it gives me a headache sometimes!!
-Most of the time, when I'm free, I spend it enjoying my hobbies. My daily life is pretty simple: school and home. There was even a period when I was barely at home because I was so busy with school and extra classes!! (╥﹏╥)｡｡｡
+Most of the time, when I'm free, I spend it enjoying my hobbies. My daily life is pretty simple: school and home. There was even a period when I was barely at home because I was so busy with school and extra classes!! 
+(╥﹏╥)｡｡｡
 <br><br>
