@@ -19,7 +19,7 @@ Hello! I'm very happy that you're reading this post!!<br>
 <br>
 
 <p align="center">
-「📌 a little ABOUT ME 」
+「📌 ᴀ ʟιттʟe ᴀʙoυт мe ୨୧ 」
 <br><br>
 
 + I'm not someone who is constantly active or able to reply to every message right away, so feel free to whisper me first so I can know you're there and that you've interacted with me!! I'll do my best to reply as soon as I can!! (๑•̀ㅂ•́)و✧
