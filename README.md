@@ -6,7 +6,7 @@ ________________________________________________________________________________
                                                          ୨୧
 
 <p align="center">
-📌 a little ABOUT ME<br><br>
+  「📌a lιттle ᴀʙoυт мe」<br><br>
 
 I'm not someone who is constantly active or able to reply to every message right away,<br>
 so feel free to whisper me first so I can know you're there and that you've interacted with me!!<br>
