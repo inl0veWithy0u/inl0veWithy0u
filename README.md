@@ -26,11 +26,9 @@ Hello! I'm very happy that you're reading this post!!<br>
 <br><br>
 
 + I have to admit that I'm not a very outgoing person and I'm not always easy to approach or talk to (｡•́︿•̀｡), especially when it comes to strangers or people who don't speak Vietnamese.
+It's not because I don't want to talk to you. Honestly, once I get comfortable with someone (even just a little), I can be very talkative!! For people who don't share the same language as me, communication can be a bit more difficult...
 <br><br>
 
-- It's not because I don't want to talk to you. Honestly, once I get comfortable with someone (even just a little), I can be very talkative!! For people who don't share the same language as me, communication can be a bit more difficult...
++ I'm not very confident in my English, even though people around me often tell me it's quite impressive!! The truth is that I'm really bad at grammar, and it gives me a headache sometimes!!
+Most of the time, when I'm free, I spend it enjoying my hobbies. My daily life is pretty simple: school and home. There was even a period when I was barely at home because I was so busy with school and extra classes!! (╥﹏╥)｡｡｡
 <br><br>
-
-- I'm not very confident in my English, even though people around me often tell me it's quite impressive!! The truth is that I'm really bad at grammar, and it gives me a headache sometimes!! (╥﹏╥)
-<br><br>
-
