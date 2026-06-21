@@ -61,3 +61,17 @@ src="https://github.com/user-attachments/assets/07fb5de1-8b0b-42d4-ac0a-eaf50c83
 <p align="center">
 ૮꒰ ˶• ༝ •˶꒱ა
 </p>
+
+<p align="center">
+  ♡ мy вeloved pιerroт ♡ 
+</p>
+
+<br>
+
+<p align="center">
+<img
+width="736"
+alt="image"
+src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688c4f1" /> 
+</p>
+
