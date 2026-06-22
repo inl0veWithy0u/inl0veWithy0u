@@ -84,7 +84,6 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
 
 <br><br>
 
-<p align="center">
 ![gif](https://raw.githubusercontent.com/inl0veWithy0u/inl0veWithy0u/main/940245094efbfb569de74b1b8a289572-ezgif.com-video-to-gif-converter.gif)
 <br><br>
 
