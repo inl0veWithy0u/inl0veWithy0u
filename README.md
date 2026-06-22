@@ -3,7 +3,9 @@ Hello! I'm very happy that you're reading this post!!<br>
   I'd like to share a little information about myself.<br>
   It will be short, so it won't take much of your time!! ( ˶ˆᗜˆ˵ )*.★ 
   <br><br>
-  Haloo!! Tui rất vui khi biết bạn đang đọc những dòng này!! <br>
+  Haloo!! Tui rất vui khi biết bạn đang đọc những dòng này!!:3 <br>
+  Tui muốn giới thiệu một chút về bản thân,<br>
+  nó sẽ không dài lắm đâu nên sẽ không làm mất quá nhiều thời gian của bạn!!( ˶ˆᗜˆ˵ )*.★ 
   </p>
 
   <br>
