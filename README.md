@@ -88,9 +88,9 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
 <br><br>
 
 <p align="center">
-  ⊹︶︶︶ㅤFin!ㅤ︶︶︶⊹
+  ⊹︶︶︶ㅤFin!𝜗ৎㅤ︶︶︶⊹
 </p>
 
-<p align="center">(づ｡@´▽`@｡)づ
+<p align="center">(づ｡𝜗୧@´▽`@｡)づ
 </p>
 
