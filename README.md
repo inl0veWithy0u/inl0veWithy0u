@@ -91,6 +91,10 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
   ⊹︶︶︶ㅤFin!𝜗ৎㅤ︶︶︶⊹
 </p>
 
-<p align="center">(づ｡𝜗୧@´▽`@｡)づ
+<p align="center">(づ｡𝜗୧@´▽`@｡)づ 
+  
+  <img src="https://img.shields.io/github/followers/USERNAME?label=FOLLOWERS&style=for-the-badge&color=FFE66D">
+
+<img src="https://img.shields.io/github/following/USERNAME?label=FOLLOWING&style=for-the-badge&color=FF4FA3">
 </p>
 
