@@ -1,25 +1,20 @@
 <p align="center">
-Hello! I'm very happy that you're reading this post!!:3 <br>
+Hello! I'm very happy that you're reading this post!!<br>
   I'd like to share a little information about myself.<br>
   It will be short, so it won't take much of your time!! ( ˶ˆᗜˆ˵ )*.★ 
-  <br><br>
-  Haloo!! Tui rất vui khi biết bồ đang đọc những dòng này!!:3 <br>
-  Tui muốn giới thiệu một chút về bản thân,<br>
-  nó sẽ không dài lắm đâu nên sẽ không làm mất quá nhiều thời gian của bồ!!( ˶ˆᗜˆ˵ )*.★ 
   </p>
 
   <br>
 
-  <p align="center">
+<p align="center">
 You can call me Minz, but once we're a little closer,<br>
 call me Min if you want to!!<br>
     To be honest, I don't really mind what you call me, you can even make up a nickname for me if you'd like!
     <br><br>
     However, if a nickname makes me uncomfortable, please don't use it.<br>
     It might end up bothering me a little.. (^▽^)
+  </p>
   <br><br>
-    Bồ cứ gọi mình là Minz, nếu thân hơn thì gọi tắt là Min cũng được<D<br>
-   Thật ra thì bồ có thể gọi mình bằng biệt danh cũng được!!<br>
   </p>
   
 <br>
@@ -37,7 +32,7 @@ call me Min if you want to!!<br>
 <br>
 
 <p align="center">
-「📌 ᴀ ʟιттʟe ᴀʙoυт мe ୨୧ 」
+「📌ᴀʙoυт мe ୨୧ 」
 <br><br>
 
 + I'm not someone who is constantly active or able to reply to every message right away, so feel free to whisper me first so I can know you're there and that you've interacted with me!! I'll do my best to reply as soon as I can!! (๑•̀ㅂ•́)و✧
