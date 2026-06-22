@@ -92,10 +92,10 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
 </p>
 
 <p align="center">(づ｡𝜗୧@´▽`@｡)づ 
-  
-<p align="center">
 
 <img src="https://img.shields.io/github/followers/nutcoco?label=FOLLOWERS&style=for-the-badge&color=FF4FA3">
+
 <img src="https://img.shields.io/github/following/nutcoco?label=FOLLOWING&style=for-the-badge&color=FFD447">
 
 </p>
+
