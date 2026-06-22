@@ -91,8 +91,6 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
   ⊹︶︶︶ㅤFin!ㅤ︶︶︶⊹
 </p>
 
-<p align="center">ヽ(@´▽`@)ノ</p>
-
-<p align="center">
-───────< ⋆⋅. ⊹ ࣪ ˖⋅⋆ >───────
+<p align="center">ヽ(@´▽`@) 
 </p>
+
