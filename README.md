@@ -88,6 +88,11 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
 <br><br>
 
 <h1 align="center">Fin ヽ(@´▽`@)ノ</h1>
+
 <p align="center">
-  <sub>✦ building quietly, improving constantly ✦</sub>
+  ────── ⋆⋅☆⋅⋆ ──────
+</p>
+
+<p align="center">
+  <sub>code • learn • repeat</sub>
 </p>
