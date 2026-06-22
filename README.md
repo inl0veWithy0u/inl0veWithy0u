@@ -1,11 +1,11 @@
 <p align="center">
-Hello! I'm very happy that you're reading this post!!<br>
+Hello! I'm very happy that you're reading this post!!:3 <br>
   I'd like to share a little information about myself.<br>
   It will be short, so it won't take much of your time!! ( ˶ˆᗜˆ˵ )*.★ 
   <br><br>
-  Haloo!! Tui rất vui khi biết bạn đang đọc những dòng này!!:3 <br>
+  Haloo!! Tui rất vui khi biết bồ đang đọc những dòng này!!:3 <br>
   Tui muốn giới thiệu một chút về bản thân,<br>
-  nó sẽ không dài lắm đâu nên sẽ không làm mất quá nhiều thời gian của bạn!!( ˶ˆᗜˆ˵ )*.★ 
+  nó sẽ không dài lắm đâu nên sẽ không làm mất quá nhiều thời gian của bồ!!( ˶ˆᗜˆ˵ )*.★ 
   </p>
 
   <br>
@@ -17,6 +17,9 @@ call me Min if you want to!!<br>
     <br><br>
     However, if a nickname makes me uncomfortable, please don't use it.<br>
     It might end up bothering me a little.. (^▽^)
+  <br><br>
+    Bồ cứ gọi mình là Minz, nếu thân hơn thì gọi tắt là Min cũng được<D<br>
+   Thật ra thì bồ có thể gọi mình bằng biệt danh cũng được!!<br>
   </p>
   
 <br>
