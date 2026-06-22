@@ -94,11 +94,10 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
 <p align="center">(づ｡𝜗୧@´▽`@｡)づ 
 
 <br>
-
 <p align="center">
-  
-<img src="https://img.shields.io/github/followers/inl0veWithy0u?label=꒰ঌ%20Followers&style=for-the-badge&color=FFD447">
 
-<img src="https://img.shields.io/badge/★%20Following%201♡%20໒꒱-FF4FA3?style=for-the-badge">
+<img src="https://img.shields.io/github/followers/inl0veWithy0u?label=%E꒰ঌ%20Followers&style=for-the-badge&color=FFD447">
+
+<img src="https://img.shields.io/badge/%E2%98%85%20Following%201%E2%99%A1%20%E0%BA%94%EA%92%B1-FF4FA3?style=for-the-badge">
 
 </p>
