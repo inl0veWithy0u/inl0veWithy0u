@@ -93,9 +93,10 @@ src="https://github.com/user-attachments/assets/ca118efb-7795-43e1-847b-17d37688
 
 <p align="center">(づ｡𝜗୧@´▽`@｡)づ 
 
+<br>
+
 <img src="https://img.shields.io/github/followers/inl0veWithy0u?label=FOLLOWERS&style=for-the-badge&color=FF4FA3">
 
 <img src="https://img.shields.io/github/following/inl0veWithy0u?label=FOLLOWING&style=for-the-badge&color=FFD447">
 
 </p>
-
